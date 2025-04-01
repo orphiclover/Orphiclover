@@ -1,8 +1,8 @@
 <p align="center">
-<img src="https://files.catbox.moe/nkp9ns.png">
+<img src="https://files.catbox.moe/eedhbn.png">
 </p> 
 <p align="center">
-<img src="https://files.catbox.moe/bczgn7.jpeg" width="400" height="300">
+<img src="https://files.catbox.moe/ru03lr.png">
 </p> 
 
 <p align="center"> hello! i am rippler / skyler  >_< 
@@ -15,5 +15,5 @@
 <img src="https://files.catbox.moe/5133ua.webp"> 
 </p>  
  <p align="center">
-<img src="https://files.catbox.moe/4lh2ze.png">
+<img src="https://files.catbox.moe/fu0iy0.png">
 </p> 
